@@ -1,1 +1,1 @@
-# skrpsi
+# SKRIPSI
